@@ -5,7 +5,7 @@
 Cusco, Perú.   
 2021 
 
-
+![reudo](https://media.giphy.com/media/l3E6NUe6XgK41gKMo/giphy.gif)  
 
 ### Descripción
 
